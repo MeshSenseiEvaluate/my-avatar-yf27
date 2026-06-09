@@ -1,4 +1,4 @@
-# 
+# my avatar ultimate Script is the best my avatar Script, featuring god mode and auto-farm. Safe and powerful for all your needs.
 
 
 
